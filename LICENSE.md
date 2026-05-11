@@ -1,4 +1,4 @@
-
+Irina for macOS custom Extension: scripting-support & junk-removal offers the most advanced Irina for macOS extension, with scripting-support and junk-removal. Ideal for macOS
 
 
 
